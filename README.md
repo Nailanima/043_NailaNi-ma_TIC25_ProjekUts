@@ -1,1 +1,0 @@
-# 043_NailaNi-ma_TIC25_ProjekUts
